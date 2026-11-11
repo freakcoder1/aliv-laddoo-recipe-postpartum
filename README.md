@@ -1,4 +1,4 @@
-# Parasite SEO Article 6 â€” Keyword: aliv laddoo recipe postpartum new mothers
+# Parasite SEO Article 6 "” Keyword: aliv laddoo recipe postpartum new mothers
 
 ## H1
 Aliv Laddoo Recipe: Traditional Postpartum Laddoo for New Mothers
@@ -48,7 +48,7 @@ One small laddoo once or twice a day is a common amount during the postpartum pe
 Aliv is traditionally avoided during pregnancy because it is believed to stimulate the uterus. There is little research either way, so it is sensible to avoid it and ask your doctor.
 
 ### Related Reading
-For a detailed guide on halim seeds â€” including what they contain, how to eat them, and their role in postpartum nutrition â€” see [Poshita's halim seeds guide](https://poshita.org/ingredients/halim-seeds/).
+For a detailed guide on halim seeds "” including what they contain, how to eat them, and their role in postpartum nutrition "” see [Poshita's halim seeds guide](https://poshita.org/ingredients/halim-seeds/).
 
 ---
 *Medically reviewed by a qualified health professional. This article is for informational purposes and is not a substitute for medical advice.*
